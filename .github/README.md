@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="(https://te.legra.ph/file/65c62019175c32c93bdaa.jpg)">
+  <img src="https://te.legra.ph/file/65c62019175c32c93bdaa.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴛʀɪɴɢ ғᴀᴛʜᴇʀ](https://t.me/ASstringbot)**_
